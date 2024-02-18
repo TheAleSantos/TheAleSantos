@@ -29,7 +29,6 @@ Sou estudante de Sistemas de Informação 4/8, Tec Redes e Tec Informatica forma
 <img src="https://user-images.githubusercontent.com/74038190/212257460-738ff738-247f-4445-a718-cdd0ca76e2db.gif" width="100">
 <img src="https://user-images.githubusercontent.com/74038190/212257467-871d32b7-e401-42e8-a166-fcfd7baa4c6b.gif" width="100">
 <img src="https://user-images.githubusercontent.com/74038190/212280805-9bcb336b-8c55-46a8-abf8-ff286ab55472.gif" width="100">
- <img src="" width="100">
 </div>
 
 <!-- 

@@ -1,4 +1,4 @@
-## 𝙷𝚎𝚕𝚕𝚘 𝚆𝚘𝚛𝚕𝚍 <img src="https://lane-seven.s3.us-west-1.amazonaws.com/wp-content/uploads/2021/12/23144218/Spinning-Globe-1200x1200-NO-BACKGROUND.gif" width="30">, 𝚋𝚎𝚖 𝚟𝚒𝚗𝚍𝚘 𝚊𝚘 𝙶𝚒𝚝𝙷𝚞𝚋
+## 𝙷𝚎𝚕𝚕𝚘 𝚆𝚘𝚛𝚕𝚍 <img src="https://lane-seven.s3.us-west-1.amazonaws.com/wp-content/uploads/2021/12/23144218/Spinning-Globe-1200x1200-NO-BACKGROUND.gif" width="30">, 𝚋𝚎𝚖 𝚟𝚒𝚗𝚍𝚘 𝚊𝚘 meu 𝙶𝚒𝚝𝙷𝚞𝚋
   **𝙸'𝚖 𝙰𝚕𝚎 𝚂𝚊𝚗𝚝𝚘𝚜 🖖**
   
 
